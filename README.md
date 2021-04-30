@@ -1,2 +1,2 @@
 # rsschool-cv
-bla-bla-bla
+[cv example](https://irinapacino.github.io/rsschool-cv/cv)
