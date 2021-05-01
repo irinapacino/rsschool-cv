@@ -8,6 +8,8 @@
 
 **Viber:** +375296441165
 
+**WhatsApp:** +375296441165
+
 
 **E-mail:** irinapacino@gmail.com
 
