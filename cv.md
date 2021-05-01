@@ -79,7 +79,7 @@ https://github.com/irinapacino)
 
 **Position: Teacher**
 
-**Period: 10.2009 - 08.2011**
+**Period: 10.2009 - 08.2013**
 
 
 **some firms**
